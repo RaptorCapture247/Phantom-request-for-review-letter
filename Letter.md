@@ -140,6 +140,9 @@ This issue directly impacts legitimate users and creates unnecessary friction fo
 Thank you for your time and consideration.
 
 Kind regards,
+
 RaptorCapture247 (github)
+
 @TheRaptorRoost (x.com)
+
 Pond0x Community Member
